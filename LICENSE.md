@@ -1,4 +1,4 @@
-#  
+#  instant Script for hypershot is the best hypershot Script, featuring instant win and one-hit kill. Safe and powerful for all your needs.
 
 
 
